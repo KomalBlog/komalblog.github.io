@@ -1,0 +1,13 @@
+---
+layout: page
+title: हिन्दी सेक्स कहानियाँ 
+permalink: हिन्दी-सेक्स-कहानियाँ/
+---
+{% for post in site.categories.Hindi-Sex-Story reversed %}
+  <div class="blog-post">
+    <a class="blog-post-title" href="{{ post.url | prepend: site.baseurl }}">{{ post.title }}</a>
+    <p>
+      {{ post.excerpt | truncate: 200}}
+    </p><hr/>
+  </div>
+{% endfor %}

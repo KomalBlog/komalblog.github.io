@@ -1,0 +1,14 @@
+---
+layout: page
+title: Desi Hot Babes Photos
+permalink: /photos/desi-babes/
+---
+  <div class="row">
+{% for post in site.categories.desi-babes reversed %}
+  <div class="col-xs-6 col-md-3">
+    <a href="{{post.url}}" class="thumbnail">
+      <img src="{{post.thumbimg}}" alt="{{post.title}}">
+    </a>
+  </div>
+{% endfor %}
+</div>

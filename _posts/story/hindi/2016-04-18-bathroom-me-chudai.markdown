@@ -1,12 +1,17 @@
 ---
 layout: post
 title:  "कोमल की चुदाई बाथरूम में - कॉलेज सेक्स कहानी "
-permalink: कोमल-की-चुदाई-बाथरूम-में/
-categories: 
+permalink: /story/hindi/komal-ki-chudai-bathroom-me/
+categories:
 - Hindi-Sex-Story
-tags:
-- हिन्दी-सेक्स-कहानियाँ
+description: मेरा नाम कोमल हे, पढ़िए मेरी सेक्सी कहानी हिन्दी में और जानिए कैसे मेने अपनी चुत राहुल को बाथरूम में दे दी. 
 ---
+
+<div class="breadcrumb">
+<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'><a href="/" itemprop="url"><span title="SexDhun" itemprop='title'>SexDhun</span></a></span>
+<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/story/" itemprop="url"><span title="Sex Story" itemprop='title'>Sex Story</span></a></span>
+<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/story/hindi/" itemprop="url"><span title="Hindi Sex Story" itemprop='title'>Hindi Sex Story</span></a></span>
+</div>
 
 हेलो फ्रेंड मेरा नाम कोमल हे। में इंजीनियरिंग कर रही हूँ. मेरी रूम की सब सहली का दो तिन बॉयफ्रेंड हे, लेकिन मेरा एक भी बॉयफ्रेंड नहीं हे, क्यूंकि में गोरी नहीं हूँ. मुझे पता था की सब लोग सिर्फ लड़की में सुंदरता हे देखते हे. जो मेरे पास नहीं थी। मेरी सब सहलिया अपने बॉयफ्रेंड्स के साथ पिक्चर देखते हे और में अकेली रह जाती हूँ, वो पिक्चर देखते देखते किश भी करते हे. वो सब देख सब कर मुझे बहुत मन कर रहा था , लेकिन मेरा कोई नहीं था. एक दिन में मेरी सब फ्रेंड्स के साथ कॉलेज गयी थी, मेरी फ्रेंड्स स्वाति का एक बॉयफ्रेंड था राहुल, वो बहुत हैंडसम था, और साथ में बहुत चालू भी था, मुझे पता था की वो सिर्फ मेरे फ्रेंड्स के साथ टाइमपास कर रहा हे. एक दिन मेने उसका लैपटॉप माँगा, उसने बिना कुस पुसे मुझे दे दिया था, लेकिन मेरी जगह कोई और खूबसूरत लड़की होती तो वो बहुत सवाल पुसेगी, लेकिन मुझे उसने कुस नहीं कहा और दे दिया. तभी हमारे ग्रुप्स फ्रेंड में एक प्लान बनाया की सब पिक्चर देखने जायेंगे, तो वो सब जल्दी में थे क्यों की शो शरू होने वाला था, इसलिए राहुल ने बाइक चालू की और स्वाति को बैठा कर मुझे कहा की में तुम्हारे हॉस्टल में आके ले जाँऊगा. मेने कहा ओके. और बादमें वो सब चले गए.
 

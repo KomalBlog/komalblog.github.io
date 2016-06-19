@@ -1,12 +1,17 @@
 ---
 layout: post
 title: चुदाई से भरी होली - कॉलेज सेक्स कहानी
-permalink: चुदाई-से-भरी-होली/
-categories: 
+permalink: /story/hindi/chudai-se-bhari-holi/
+categories:
 - Hindi-Sex-Story
-tags:
-- हिन्दी-सेक्स-कहानियाँ
+description: पढ़िए मेरी सेक्सी कहानी हिन्दी में और जानिए कैसे मेने अपनी सहेली की भाई के साथ चुदाई होली खेली. 
 ---
+
+<div class="breadcrumb">
+<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'><a href="/" itemprop="url"><span title="SexDhun" itemprop='title'>SexDhun</span></a></span>
+<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/story/" itemprop="url"><span title="Sex Story" itemprop='title'>Sex Story</span></a></span>
+<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/story/hindi/" itemprop="url"><span title="Hindi Sex Story" itemprop='title'>Hindi Sex Story</span></a></span>
+</div>
 
 मेरी उम्र चौबीस साल की है, मैं एम.कॉम. सेकंड ईयर की छात्रा हूँ। जैसे-जैसे मेरी दोस्ती लड़कों में बढ़ने लगी और प्यार और सेक्स का मज़ा लेने लगी, तैसे ही मेरा ध्यान और अन्य लड़कों में लगने लगा। इसी हफ्ते में होली आने वाली थी और कॉलेज में छुट्टियाँ शुरू होने वाली थीं इसलिए हम लोगों ने तय किया कि छुट्टियों से पहले हम लोगों कॉलेज में अपने दोस्तों के साथ होलीमनाएँगे, फिर न जाने कब मौका मिले। क्योंकि ज्यादातर लड़के लड़कियाँ तो बाहर से थे और वो अमूमन त्योहारों के मौके पर घर चले जाते हैं।
 

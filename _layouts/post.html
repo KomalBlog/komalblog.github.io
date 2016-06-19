@@ -11,6 +11,3 @@ layout: default
   </div>
 </article>
 
-<button class="btn btn-default" type="button">Tags</button>
-    {% for tag in page.tags %}<a class="btn btn-primary" href="{{site.baseurl}}/{{tag}}/" role="button">{{ tag | replace:'-','  ' }}</a>{% endfor %}
-

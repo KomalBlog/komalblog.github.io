@@ -3,11 +3,11 @@ layout: default
 sitemap: false
 ---
 <br/>
-{% for post in site.posts %}
+{% for post in site.posts limit:20 %}
   <div class="blog-post">
     <a class="blog-post-title" href="{{ post.url | prepend: site.baseurl }}">{{ post.title }}</a>
     <p>
-      {{ post.description | truncate: 200}}
+      {{ post.description}}
     </p><hr/>
   </div>
 {% endfor %}

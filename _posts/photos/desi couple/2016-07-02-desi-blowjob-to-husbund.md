@@ -4,7 +4,7 @@ title: Desi Wife Giving Blowjob to Husband
 tags: [desiwife,blowjob]
 category: [desi-couple]
 thumbimg: https://2.bp.blogspot.com/-L09x5FHt8E4/V3eig5wheaI/AAAAAAAABJ8/Z0lcx9KpdxU8xkAkWiBNWi62eu2vabnWQCLcB/s200/Desi%2BWife%2BGiving%2BBlowjob%2Bto%2BHusbund%2B%25287%2529.jpg
-description: Hot Desi Indian Wife Taking her husbund cock - Desi Blowjob FUll HD photos.
+description: Desi Indian Wife suck her husbund cock - Desi Blowjob Full HD photos.
 permalink: /photos/desi-couple/desi-blowjob/
 ---
 
@@ -14,7 +14,7 @@ permalink: /photos/desi-couple/desi-blowjob/
 <span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/photos/desi-couple/" itemprop="url"><span title="Desi Couple" itemprop='title'>Desi Couple</span></a></span>
 </div>
 
-Hot Desi Indian Wife Taking her husband cock - Desi Blowjob FUll HD photos.
+Desi Indian Wife suck her husbund cock - Desi Blowjob Full HD photos.
 
 <div dir="ltr" style="text-align: left;" trbidi="on">
 <div class="separator" style="clear: both; text-align: center;">

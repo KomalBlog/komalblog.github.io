@@ -1,0 +1,14 @@
+---
+layout: page
+title: Desi Hot Aunty Photos collection
+permalink: /photos/desi-aunty/
+---
+  <div class="row">
+{% for post in site.categories.desiaunty reversed %}
+  <div class="col-xs-6 col-md-3">
+    <a href="{{post.url}}" class="thumbnail">
+      <img src="{{post.thumbimg}}" alt="{{post.title}}">
+    </a>
+  </div>
+{% endfor %}
+</div>

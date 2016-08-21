@@ -1,0 +1,33 @@
+---
+layout: post
+title: Meri Pehli Chudai Ki Kahaani - Desi Kahani
+tags: [firsttimestory]
+category: [desikahani]
+redirect_from:
+  - /story/hindi/meri-pehli-chudai-ki-kahani.html
+  - /story/desi/meri-pehli-chudai-ki-kahani.html
+  - /meri-pehli-chudai-ki-kahani-hindi-sex-story.html
+permalink: /story/desi/meri-pehli-chudai-ki-kahani/
+description: Padhiye kese karuna ne apne bhai ko, pehli chudai ke liye manaya.
+---
+
+<div class="breadcrumb">
+<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'><a href="/" itemprop="url"><span title="SexDhun" itemprop='title'>SexDhun</span></a></span>
+<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/story/" itemprop="url"><span title="Sex Story" itemprop='title'>Sex Story</span></a></span>
+<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/story/desi/" itemprop="url"><span title="Desi Kahani" itemprop='title'>Desi Kahani</span></a></span>
+</div>
+
+Hi, Mera naam karuna hai , main aaj aapko meri paheli chudai ki kahani sunati hu.
+Ye aaj se 4 saal pahle ki baat hai, main us waqt 1st year mein padhti thi. aur Meri umar 15 saal thi , mera size 32/26/32 tha aur mere boobs(stan) chhote the.
+
+
+Meraek bada bhai hai jiska naam deepak hai aur wo mujh se 5 saal baba hai. mai apne maa baap ki ekloti ladki hoon. hamare ghar main sabke bedroom alag-2 hain. ek raat ko jab main bathroom jaane ke liye kamre se bhahar ayee to mujhe mummy aur papa ke kamre se ajeeb tarah ki awaajen sunai di to main unke kamre ki taraf jaane lagi jaise-2 main unke kamre ke pass gayee awaaj tej hoti gai. maine key hole se andar jhank kar dekha to meri saans ruk gayee. main dekha ki mere mummy papa dono bilkul nange the unke dadan par ek bhi kapda nahi tha.meri mummy laiti hui thi aur papa mummy ke dono pair khol kar unki CHOOT chaat rahe the jis si mummy ko mazza aa raha tha aur wo Aaaaaaaaaah , Issssss. Ohhhhhh ki awaaj nikaal rahi thi. ye dekh kar mere honth sookh gaye aur mujh se jyada der dekha nahin gaya aur main wapas aa gayi.
+
+
+ye baaten mere dimag me kai dinon tak rahi aur main tadapti rahi ki koi mere saath bhi eisa kare. Ek din mere mummy papa ko 2 din ke liye bahar jaana pada. Ab ghar mein mai aur mere bhaiya deepak the. main aapko bataa doon ki bhaiya bhi mummy papa ko nangi haalat me dekh chuke the isliye wo bhi tadp rahe the.
+
+
+Main duphar ko college se aane ke baad khana khaa kar apne kamre mein rest karne ke liye chali aayee aur bed par let gayee. maine short T-shirt aur jeens pahani hui thi. T-shirt short hone ki wajah se mera pet aur meri goll gahari nabhi dikh rahi thi, kyon ki main pant ya salwar ko nabhi se nichhe hi pahanti hoon. thaki hone ke karan meri aankh lag gayee. par dhodi der baad mujhe mere badan mein kuch halchal si mehsoos hui. tab maine aankh kholi to dekha ki deepak bhaiya meri nabhi mein aapni jeebh fira rahe the. mujhe bhi unka eisa karna aicha lag raha tha to main kuch nahin boli aur aankh band kar leti rahi. bhaiya dheere-2 mere badan ko sahala rahe the. mujhe aisa lag raha tha jaise mere badan mein karant doud raha ho. Phir unke haath meri chhati par aa gaye. jaise hi bhaiya ne mere boobs ko dabaya aur meri nipple ko chheda mere munh se Isssss ki awaaj nikli. jis se bhaiya dar gaye aur khade ho gaye. maine bhaiya ka haath pakda aur kaha plz bhaiya karo na mujhe mazza aa raha hai . yeh sun kar unki himmat badhi aur wo wapas mere pass aa kar mujhe sahalane lage. Ab hum khul chuke the. bhaiya mere badan ka har hissa chhed rahe the mujhe mazza aa raha tha.unhone meri T-shirt utar di aur meri bra ke andar haarh daal kar meri Choochiyan dabane lage.Phir bhaiya ne meri bra bhi utar di aur meri pant bhi. Ab wo mere nipples ko aapne munh me le kar jor jor se chusne lage aur ek haath se meri CHOOT ko ragadne lage. mere munh se Aaaaah , Ohhhhh ,Isssss ki siskariyan nikalne lagi aur ye awaajen badhti gai. mere poore badan mein bijali si ghoom rahi thi. maine kaha bhaiya nipple chhod do mujhse nahin saha ja raha to bhaiya ne unhe chhod kar mere dono paron ko faila kar meri CHOOT ko jor jor se chaatna shuru kar diya jis se mera aur boora haal ho gaya. mera chehara laal ho gaya tha. mere ek haath mein apna lund pakda diya. main uski lambai our motai dhekh kar hi dar gayee. meri aur bhaiya ki umar mein me 5 saal ka antar tha. maine kaha bhaiya meri chhoti si CHOOT mein tumhara Lund kaise jayega. main to mar jaoongi. tab unhone kaha ki thoda sa dard hoga phir mazza hi mazza. Wase main bhi is cheez ka mazza lena chahti thi. bhaiya ne mujhe bad par lita kar mere dono par khole aur meri CHOOT par land ka munh rakh diya aur thoda dabaya to land ka munh meri CHOOT mein andar chala gaya. mere munh se jor ki cheekh nikli Aaaaaaah bhaiya main mar gayee ise bahar nikalo , main bhaiya ruk jaao. meri cheekh sun kar bhaiya ruk gaye. Phir ek dum se jor ka jhatka maar kar poora lund meri CHOOT mein daal diya. meri cheekh mere gale mein dab gayee Oooob. meri aankhe bahar aa gayee aur aisa laga jaise koi khanjar meri CHOOT ko phad kar meri nabhi tak chala gayaa ho .mera dard se boora haal ho gaya . Meri CHOOT se khoon nikalne laga. khoon dekh kar main aur bhi dar gayee. Phir bhaiya thodi der ruk kar meri chhati sahalane lage aur mere nipple chhosne lage. kuch der baad mera dard jab kam hua tab bhaiya ne dhire dhire Apna LUND aage piche karne lage. kuch der baad mera sara dard jaata raha aur mujhe mazza aane laga. Tab main bhi bhaiya ka saath dene lagi aur aapni GAAND aur KULHE uppar neeche karne lagi. Bas phir kya tha poore kamre mein jaise koi toofan aa gaya ho. Bhaiya poore josh ke saath mujhe CHODE JA rahe the aur poore kamre mein meri Ohhhhhh , Aaaaaaah ,Isssssss ki Awaajen goonj rahi thi. Achanak bhaiya ko jaane kaya hooa aur unhone jhatke maarna tez kar diya. main bhi apni charam seema par pahooch rahi thi to maine unko kas kar pakad rakha tha aur wo jhatke par jhatke maare jaa rahe the . Aakhir mein meri CHOOT ke andar dher saari garam pichkari maar kar meri chhaati par bikhar gayee. meri bhi aankhe band hone lagi. mujhe aisa lag raha tha jaise meri CHOOT mein bhaiya nebahut saara ras bhar diya ho. thodi der lete rahne ke baad hum dono alag huye aur apne kapde pehane.
+
+
+Is tarah se maine apni pehli CHUDAI ka mazza liya. Agar aapko kahai achhi lage to please give me response

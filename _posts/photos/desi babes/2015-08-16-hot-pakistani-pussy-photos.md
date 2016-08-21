@@ -7,6 +7,7 @@ thumbimg: http://i.imgur.com/RLOmNCr.jpg
 description: Hot pakistani Girl Taking Nude Selfies And Masterbuting - 58 Pics of Collection.
 redirect_from:
   - /hot-pakistani-girl-pussy-photos-collection.html
+  - /gallery/desi-babes/hot-pakistani-girl-pussy-photos-collection/
 permalink: /photos/desi-babes/hot-pakistani-girl-pussy-photos-collection/
 ---
 

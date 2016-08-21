@@ -8,3 +8,6 @@ url: "https://www.sexdhun.com" # the base hostname & protocol for your site
 markdown: kramdown
 
 include: ['_pages']
+
+gems:
+  - jekyll-redirect-from

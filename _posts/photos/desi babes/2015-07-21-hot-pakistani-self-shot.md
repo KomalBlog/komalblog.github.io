@@ -3,7 +3,7 @@ layout: post
 title: Hot Pakistani self shot nude photos collection
 tags: [desibabes,selfie]
 category: [desi-babes]
-thumbimg: http://i.imgur.com/QWcfq7Y.jpg?1
+thumbimg: https://i.imgur.com/QWcfq7Y.jpg?1
 description: Hot Pakistani Girl Taking Nude Selfies In bathroom, Checkout her cute boobs.
 redirect_from:
   - /hot-pakistani-girl-self-shot-nude-photos-collection.html

@@ -1,13 +1,1 @@
-Related Post:
-{% assign listed_posts_urls = page.url | split: ' ' %}
-{% for tag in page.tags %}
-<div class="special">
-  {% for mypost in site.tags[tag] limit:10 %}
-    {% if listed_posts_urls contains mypost.url %}
-    {% else %}
-        <a href="{{ mypost.url }}">{% if page.thumbimg %}<img src="{{ mypost.thumbimg }}"/> {% else %} {{ mypost.title }} {% endif %}</a>
-      {% assign listed_posts_urls = listed_posts_urls | push: mypost.url %}
-    {% endif %}
-  {% endfor %}
-  </div>
-{% endfor %}
+

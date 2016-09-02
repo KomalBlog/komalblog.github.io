@@ -19,8 +19,11 @@
             </section>
 			
 			<section class="sidebar col col-lg-3">
+			{% if page.layout == 'post' %}
 			{% include right-sidebar.html %}
+			{% endif %}
 			</section>
+			
 		
 		</div>
 	</div>

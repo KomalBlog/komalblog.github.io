@@ -1,3 +1,25 @@
 <div class="sidebar-module sidebar-module-inset">
-  <div class="pr-widget" id="pr-iini" style="height:800px;width:300px;"></div>
+Related Post:
+{% assign listed_posts_urls = page.url | split: ' ' %}
+{% for tag in page.tags %}
+<ul class="media-list main-list">
+  {% for mypost in site.tags[tag] limit:10 %}
+    {% if listed_posts_urls contains mypost.url %}
+    {% else %}
+		<li class="media">
+        {% if page.thumbimg %}
+			<a class="pull-left" href="{{ mypost.url }}">
+			<img height="120" width="150" class="media-object" src="{{ mypost.thumbimg }}"/></a>
+			<div><h5>{{ mypost.title }}</h5></div> 
+		{% else %} 
+			<a class="pull-left" href="{{ mypost.url }}">
+			{{mypost.title}} </a> <br/>
+			<div><h5>{{ mypost.description }}</h5></div>
+		{% endif %}
+		</li>
+      {% assign listed_posts_urls = listed_posts_urls | push: mypost.url %}
+    {% endif %}
+  {% endfor %}
+  </ul>
+{% endfor %}
 </div>

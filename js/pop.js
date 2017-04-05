@@ -116,33 +116,3 @@ function jsUnda(sUrl, sConfig) {
     }
 }
     </script>
-
-<script>
-  var totalURLWeight = 0,
-   currentURL = 0,
-   weighedURL = [],
-   URLlist = [
-   ["http://polimerk.com/15w53/sV8D/v1sT/5xdA-zfIvFGvL2GAdaWXz2UryzAKUX4UqTLdfdlCzCj0QP_5GwIN?tVY=WW_AD", 50], // first column is URL, second column is the relative weight
-   ["http://polimerk.com/15w53/sV8D/v1sT/5xdA-zfIvFOvKDTUL_aWlUbxYF81j0m5-Xhw14E6tiCULu_1T29J?tVY=WW_MS", 50] // last element doesn't get a comma
-  ];
- 
-  for (var i = 0; i < URLlist.length; i++) {
-   totalURLWeight += URLlist[i][1];
-  }
- 
-  while (currentURL < URLlist.length){
-   for (i = 0; i < URLlist[currentURL][1]; i++) {
-    weighedURL[weighedURL.length] = URLlist[currentURL][0]
-   }
-   currentURL++
-  }
- 
-  var pURL = weighedURL[Math.floor(Math.random() * weighedURL.length)];
-  jsUnda(pURL, {
-   width: 1100, // Width of the popunder
-   height: 850, // Height of the popunder
-   cap: 4, // Number of times the popunder can happen in the time period
-   wait: (4 * 2), // Time period delimiting the cap
-   cookie: "CookieName" // Name of the cookie, change this to force the popunders to happen
-  });
- </script>

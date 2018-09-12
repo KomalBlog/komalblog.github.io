@@ -5,10 +5,7 @@ categories:
 - Hindi-Sex-Story
 tags: [bhabhichudai,hindisexstory]
 description: इस हिंदी सेक्स कहानी में आप जानोगे कैसे नितिन ने अकेली निकिता भाभी को बारिस के मौसम में चोदा। 
-redirect_from:
-  - /story/hindi/nikita-bhabhi-ki-chudai.html
-  - /nikita-bhabhi-ki-chudai-hindi-sex-story.html
-permalink: /story/hindi/nikita-bhabhi-ki-chudai/
+permalink: /nikita-bhabhi-ki-chudai-hindi-sex-story/
 ---
 
 <div class="breadcrumb">

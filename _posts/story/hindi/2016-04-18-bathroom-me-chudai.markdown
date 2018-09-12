@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "कोमल की चुदाई बाथरूम में - कॉलेज सेक्स कहानी "
-permalink: /story/hindi/komal-ki-chudai-bathroom-me/
+permalink: /komal-ki-chudai-bathroom-me/
 categories:
 - Hindi-Sex-Story
 tags: [collegechudai,hindissexstory]

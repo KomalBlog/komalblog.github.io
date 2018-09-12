@@ -5,7 +5,7 @@ tags: [desibhabhi,saree]
 category: [desi-bhabhi]
 thumbimg: https://3.bp.blogspot.com/-Tx7xjqLMiSQ/V9K5RYL1mxI/AAAAAAAABas/3iGS8oAHfYcoONHTDu-agKm0wkD6B3T5wCLcB/s200/desi-slim-bhabhi-boobs%2B%25288%2529.jpg
 description: Hot desi slim bhabhi getting nude and pressing her tight boobs. 
-permalink: /photos/desi-bhabhi/slim-bhabhi-boobs/
+permalink: /desi-slim-bhabhi-boobs-photo-collection/
 ---
 
 <div class="breadcrumb">

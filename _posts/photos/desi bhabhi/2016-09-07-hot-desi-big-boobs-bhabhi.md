@@ -5,7 +5,7 @@ tags: [desibhabhi,desimilf]
 category: [desi-bhabhi]
 thumbimg: https://2.bp.blogspot.com/-dm4Y39jDcA0/V88TBgHgLVI/AAAAAAAABY4/r07M8GmtgYkA4z6ZNaXXjCS6TCup9gkzACLcB/s200/hot-big-boobs-bhabhi-photos%2B%25287%2529.png
 description: Hot Desi Bhabhi showing really big and tight boobs to everyone. 
-permalink: /photos/desi-bhabhi/hot-big-boobs-bhabhi/
+permalink: /desi-hot-big-boobs-bhabhi-photo-collection/
 ---
 
 <div class="breadcrumb">

@@ -5,7 +5,7 @@ tags: [desibhabhi,saree]
 category: [desi-bhabhi]
 thumbimg: https://4.bp.blogspot.com/-lRKGYVvm3bE/WOh8BjX_xFI/AAAAAAAABx0/96kYUgxTTJsmG2T5LMpPIIFtQW0VMqBbwCLcB/s200/newly-married-bhabhi%2B%25283%2529.png
 description: Desi Newly Married bhabhi removing salwar kameez in sofa, and getting naked in front of her husbund.
-permalink: /photos/desi-bhabhi/newly-married-bhabhi-removing-salwar-kameez-in-sofa/
+permalink: /newly-married-bhabhi-removing-salwar-kameez-in-sofa/
 ---
 
 <div class="breadcrumb">

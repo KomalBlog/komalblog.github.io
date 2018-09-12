@@ -5,7 +5,7 @@ tags: [desibhabhi,selfie]
 category: [desi-bhabhi]
 thumbimg: https://3.bp.blogspot.com/--pR7-iJGepc/V3dgfBvggnI/AAAAAAAABIk/rAHDetmU8yEWZtDQQZjAoohuw840BDwWgCLcB/s200/sexy%2Bcurvy%2Bbhabhi%2B%25281%2529.jpg
 description: Hot Desi Sexy Curvy Bhabhi Showing her Big Ass and Boobs.
-permalink: /photos/desi-bhabhi/sexy-curvy-bhabhi/
+permalink: /sexy-curvy-desi-bhabhi-photos-collection/
 ---
 
 <div class="breadcrumb">

@@ -3,11 +3,7 @@ layout: post
 title: Meri Pehli Chudai Ki Dastan - Desi Kahani
 tags: [firsttimestory]
 category: [desikahani]
-redirect_from:
-  - /story/hindi/meri-pehli-chudai-ki-dastan.html
-  - /story/desi/meri-pehli-chudai-ki-dastan.html
-  - /meri-pehli-chudai-ki-dastan-hindi-sex-story.html
-permalink: /story/desi/meri-pehli-chudai-ki-dastan/
+permalink: /meri-pehli-chudai-ki-dastan/
 description: Padhiye kese ritu ne apne pehli chudai apne uncle ke sath, thandi me cheepak ke karwayi.
 ---
 

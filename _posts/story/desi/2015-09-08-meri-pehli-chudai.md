@@ -3,11 +3,7 @@ layout: post
 title: Meri Pehli Chudai Ki Kahaani - Desi Kahani
 tags: [firsttimestory]
 category: [desikahani]
-redirect_from:
-  - /story/hindi/meri-pehli-chudai-ki-kahani.html
-  - /story/desi/meri-pehli-chudai-ki-kahani.html
-  - /meri-pehli-chudai-ki-kahani-hindi-sex-story.html
-permalink: /story/desi/meri-pehli-chudai-ki-kahani/
+permalink: /meri-pehli-chudai-ki-kahani-hindi-sex-story/
 description: Padhiye kese karuna ne apne bhai ko, pehli chudai ke liye manaya.
 ---
 

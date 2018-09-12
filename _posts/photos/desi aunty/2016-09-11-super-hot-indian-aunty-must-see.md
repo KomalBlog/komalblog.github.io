@@ -5,7 +5,7 @@ tags: [desiaunty,desimilf]
 category: [desiaunty]
 thumbimg: https://3.bp.blogspot.com/-X2qeUqafU94/V9WQ2T4OkGI/AAAAAAAABc4/mIfbz2MtxS0J17jnA1FaWJHfqBVkAyIQgCLcB/s200/hot%2Bsuper%2Baunty%2Bgetting%2Bnude%2B%25287%2529.jpg
 description : Super Hot Indian Milf Aunty Photos- Guys Must see. She is dream aunty of all guys.
-permalink: /photos/desi-aunty/super-hot-milf/
+permalink: /desi-aunty-super-hot-milf-photos/
 ---
 
 <div class="breadcrumb">

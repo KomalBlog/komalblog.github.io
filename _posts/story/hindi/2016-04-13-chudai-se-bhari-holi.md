@@ -1,7 +1,7 @@
 ---
 layout: post
 title: चुदाई से भरी होली - कॉलेज सेक्स कहानी
-permalink: /story/hindi/chudai-se-bhari-holi/
+permalink: /college-me-chudai-se-bhari-holi/
 categories:
 - Hindi-Sex-Story
 tags: [collegechudai,hindisexstory]

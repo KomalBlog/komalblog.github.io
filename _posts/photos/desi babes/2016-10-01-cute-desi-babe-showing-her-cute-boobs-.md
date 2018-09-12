@@ -5,7 +5,7 @@ tags: [desibabes,selfie,cute]
 category: [desi-babes]
 thumbimg: https://4.bp.blogspot.com/-mnW43sU47vg/V-__v_Zm4_I/AAAAAAAABoU/b7kla9wLDls2_UD3u3wOzmfgzW9wmWGRwCLcB/s200/cute-desi-boobs-girl%2B%25285%2529.jpg
 description: Very cute lovely desi babe showing her cute lovely boobs - Checkout her lovely nude photos.
-permalink: /photos/desi-babes/cute-girl-and-cute-boobs/
+permalink: /cute-girl-and-cute-boobs-photos-collection/
 ---
 <div class="breadcrumb">
 <span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'><a href="/" itemprop="url"><span title="SexDhun" itemprop='title'>SexDhun</span></a></span>

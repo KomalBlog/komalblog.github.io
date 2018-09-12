@@ -3,10 +3,7 @@ layout: post
 title: Bur Ki Kahani - Neelam Ki Chudai
 tags: [femalestory]
 category: [desikahani]
-redirect_from:
-  - /story/bur-ki-kahani-neelam-ki-chudai.html
-  - /bur-ki-kahani-neelam-ki-chudai.html
-permalink: /story/desi/bur-ki-kahani/
+permalink: /neelam-bur-ki-chudai-kahani/
 description: Janiye kese es kahani me, neelam apni bhabhi ki chudai, gair mard ke sath dekh kar kamuk hoti he.
 ---
 

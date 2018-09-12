@@ -3,11 +3,7 @@ layout: post
 title: Tution Teacher Ki Chudai Car Me - Desi Kahani
 tags: [teacherstory]
 category: [desikahani]
-redirect_from:
-  - /story/hindi/tution-teacher-ki-chudai-car-me.html
-  - /story/desi/tution-teacher-ki-chudai-car-me.html
-  - /tution-teacher-ki-chudai-car-me-desi-kahani.html
-permalink: /story/desi/tution-teacher-ki-chudai-car-me/
+permalink: /tution-teacher-ki-chudai-car-me-desi-kahani/
 description: Padhiye meri kahani, kese mene apni tution teacher ko car me pataya aur choda.
 ---
 

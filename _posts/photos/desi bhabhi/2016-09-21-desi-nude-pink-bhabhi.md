@@ -5,7 +5,7 @@ tags: [desibhabhi,saree]
 category: [desi-bhabhi]
 thumbimg: https://1.bp.blogspot.com/-RObrVPVYVB0/V-LQdZ6lfGI/AAAAAAAABkM/6IHFXstu6FIsTpd3f9N2N3JogV_-AfPiwCLcB/s200/desi-pink-bhabhi-nude-photos%2B%25285%2529.jpg
 description: Desi sexy bhabhi in pink nighty dress. Checkout her pussy and boobs photos.
-permalink: /photos/desi-bhabhi/nude-pink-bhabhi/
+permalink: /desi-nude-pink-bhabhi-hot-collection/
 ---
 
 <div class="breadcrumb">

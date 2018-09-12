@@ -5,7 +5,7 @@ tags: [desibabes,selfie,bathroom]
 category: [desi-babes]
 thumbimg: https://2.bp.blogspot.com/-mzf8si6X4Jg/V9hHBlqAIoI/AAAAAAAABgE/fqJMzx55NhUsJdpi0u0SN95xbyb3PBp-ACLcB/s200/desi-nude-babe-in-saree%2B%25288%2529.jpg
 description: Hot desi babe with pink saree, bra and panty. She is taking nude slefies photos from bathroom.
-permalink: /photos/desi-babes/nude-pink-selfie-in-bathroom/
+permalink: /nude-pink-selfie-in-bathroom-desi-photos/
 ---
 <div class="breadcrumb">
 <span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'><a href="/" itemprop="url"><span title="SexDhun" itemprop='title'>SexDhun</span></a></span>

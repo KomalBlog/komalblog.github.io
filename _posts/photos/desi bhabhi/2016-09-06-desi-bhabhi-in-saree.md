@@ -5,7 +5,7 @@ tags: [desibhabhi,saree]
 category: [desi-bhabhi]
 thumbimg: https://1.bp.blogspot.com/-bOkOOL4_uRo/VqyCDmkKiwI/AAAAAAAAA_A/MM0B8MRJbvI/s200/Desi%2BWife%2BSaree%2BStriptease%2B%25284%2529.jpg
 description: Hot Desi Bhabhi In Green Saree - Sexy Nude Photos Collection. 
-permalink: /photos/desi-bhabhi/sexy-bhabhi-in-saree/
+permalink: /desi-sexy-bhabhi-in-hot-saree-photos-collection/
 ---
 
 <div class="breadcrumb">

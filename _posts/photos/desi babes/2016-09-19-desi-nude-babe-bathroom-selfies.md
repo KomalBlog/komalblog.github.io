@@ -5,7 +5,7 @@ tags: [desibabes,selfie,bathroom]
 category: [desi-babes]
 thumbimg: https://1.bp.blogspot.com/--A7Wvh-MhvY/V97fPZ9RkqI/AAAAAAAABjU/Ky_Y39yk2jUpEWY-0AICqaJipikyQJbRQCLcB/s200/desi-babe-taking-nude-selfies-in-bathroom%2B%25281%2529.jpg
 description: Hot desi babe taking nude selfies in bathroom, checkout her amazing pussy photos.
-permalink: /photos/desi-babes/nude-pussy-selfies-in-bathroom/
+permalink: /desi-nude-pussy-selfies-photos-in-bathroom/
 ---
 <div class="breadcrumb">
 <span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'><a href="/" itemprop="url"><span title="SexDhun" itemprop='title'>SexDhun</span></a></span>

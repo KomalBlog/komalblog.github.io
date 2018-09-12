@@ -7,7 +7,7 @@ thumbimg: https://i.imgur.com/QWcfq7Y.jpg?1
 description: Hot Pakistani Girl Taking Nude Selfies In bathroom, Checkout her cute boobs.
 redirect_from:
   - /hot-pakistani-girl-self-shot-nude-photos-collection.html
-permalink: /photos/desi-babes/hot-pakistani-girl-self-shot-nude-photos-collection/
+permalink: /hot-pakistani-girl-self-shot-nude-photos-collection/
 ---
 
 <div class="breadcrumb">

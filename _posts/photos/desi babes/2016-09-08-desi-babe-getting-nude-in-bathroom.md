@@ -5,7 +5,7 @@ tags: [desibabes,selfie,bathroom]
 category: [desi-babes]
 thumbimg: https://4.bp.blogspot.com/-5Z6an192xwM/V9BeuCSDRSI/AAAAAAAABZo/RNNX1n5LqAYw-xmKYW5cG4P5RK4xYeEIwCLcB/s200/hot%2Bdesi%2Bbabe%2Bgetting%2Bnude%2Bin%2Bbathroom%2B%25283%2529.jpg
 description: Very Hot Desi babe showing her tits and masterbution in bathroom.
-permalink: /photos/desi-babes/nude-babe-in-bathroom/
+permalink: /desi-nude-babe-bathroom-photos-collection/
 ---
 <div class="breadcrumb">
 <span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'><a href="/" itemprop="url"><span title="SexDhun" itemprop='title'>SexDhun</span></a></span>

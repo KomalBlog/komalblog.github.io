@@ -1,12 +1,10 @@
 ---
 layout: post
-title: Hot Mallu Aunty B Grade Movie Stills 
+title: Hot Mallu Aunty B Grade Movie Stills Photos 
 tags: [malluaunty,bgrade]
 category: [desiaunty]
 thumbimg: https://3.bp.blogspot.com/-B7Kr4M0n-Wc/VvgCV-z_oeI/AAAAAAAABDY/Qc21kLMPT7MjkL6Kpl5sqWIx2Tea6NlKg/s320/mallu%2BB%2Bgrade%2Bscene%2B%25281%2529.jpg
-permalink: /photos/desi-aunty/mallu-aunty-b-grade-movie-stills/
-redirect_from:
-  - /gallery/mallu-aunty/old-b-grade-movie-stills/
+permalink: /mallu-aunty-b-grade-movie-stills-photos/
 ---
 
 <div class="breadcrumb">

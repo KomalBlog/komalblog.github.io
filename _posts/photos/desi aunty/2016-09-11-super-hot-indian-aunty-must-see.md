@@ -1,19 +1,11 @@
 ---
 layout: post
 title: Super Hot Indian Milf Aunty Photos - Must See
-tags: [desiaunty,desimilf]
-category: [desiaunty]
+category: Desi-Aunty-Photos
 thumbimg: https://3.bp.blogspot.com/-X2qeUqafU94/V9WQ2T4OkGI/AAAAAAAABc4/mIfbz2MtxS0J17jnA1FaWJHfqBVkAyIQgCLcB/s200/hot%2Bsuper%2Baunty%2Bgetting%2Bnude%2B%25287%2529.jpg
 description : Super Hot Indian Milf Aunty Photos- Guys Must see. She is dream aunty of all guys.
 permalink: /desi-aunty-super-hot-milf-photos/
 ---
-
-<div class="breadcrumb">
-<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'><a href="/" itemprop="url"><span title="SexDhun" itemprop='title'>SexDhun</span></a></span>
-<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/photos/" itemprop="url"><span title="Photos" itemprop='title'>Photos</span></a></span>
-<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/photos/desi-aunty/" itemprop="url"><span title="Desi Aunty" itemprop='title'>Desi Aunty</span></a></span>
-</div>
-
 <p>Super Hot Indian Milf Aunty Photos- Guys Must see. She is dream aunty of all guys. Pure Desi Milf Aunty, You have to share this post if you really like her and want to fuck her in your dream </p>
 <p>Please click on images to see orignal size photos. </p>
 

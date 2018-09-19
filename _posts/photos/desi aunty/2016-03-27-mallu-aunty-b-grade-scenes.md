@@ -1,18 +1,10 @@
 ---
 layout: post
 title: Hot Mallu Aunty B Grade Movie Stills Photos 
-tags: [malluaunty,bgrade]
-category: [desiaunty]
+category: Desi-Aunty-Photos
 thumbimg: https://3.bp.blogspot.com/-B7Kr4M0n-Wc/VvgCV-z_oeI/AAAAAAAABDY/Qc21kLMPT7MjkL6Kpl5sqWIx2Tea6NlKg/s320/mallu%2BB%2Bgrade%2Bscene%2B%25281%2529.jpg
 permalink: /mallu-aunty-b-grade-movie-stills-photos/
 ---
-
-<div class="breadcrumb">
-<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'><a href="/" itemprop="url"><span title="SexDhun" itemprop='title'>SexDhun</span></a></span>
-<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/photos/" itemprop="url"><span title="Photos" itemprop='title'>Photos</span></a></span>
-<span itemscope='itemscope' itemtype='http://data-vocabulary.org/Breadcrumb'>&#187; <a href="/photos/desi-aunty/" itemprop="url"><span title="Desi Aunty" itemprop='title'>Desi Aunty</span></a></span>
-</div>
-
 Hot Old B Grade Mallu Aunty Scenes and Stills.
 
 <img class="img-responsive" src="https://3.bp.blogspot.com/-B7Kr4M0n-Wc/VvgCV-z_oeI/AAAAAAAABDY/Qc21kLMPT7MjkL6Kpl5sqWIx2Tea6NlKg/s1600/mallu%2BB%2Bgrade%2Bscene%2B%25281%2529.jpg" >
